@@ -3,4 +3,4 @@
 ## Introduction
 
 *Name: John
-*Activities I like to do: Reading, working out
+*Activities I like to do: Reading, working out, eating snacks
